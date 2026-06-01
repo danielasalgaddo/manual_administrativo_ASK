@@ -1,0 +1,1 @@
+# manual_administrativo_ASK
